@@ -1,0 +1,3 @@
+- i am aries
+- i am the third child out of 5 kids
+- my favorite artist is ariana grande
